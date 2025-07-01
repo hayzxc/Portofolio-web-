@@ -85,7 +85,7 @@ Jika Anda tertarik untuk berkolaborasi atau ingin mengetahui lebih lanjut tentan
 
 - Email: hayukurniawan@gmail.com
 - WhatsApp [085736423884](https://wa.me/6285736423884)
-- GitHub: [github.com/hayukurniawan](https://github.com/hayzxc)
+- GitHub: [github.com/hayzxc](https://github.com/hayzxc)
 
 Rencana Pengembangan
 
